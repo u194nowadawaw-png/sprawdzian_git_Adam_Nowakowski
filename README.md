@@ -1,1 +1,0 @@
-# sprawdzian_git_Adam_Nowakowski
